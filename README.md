@@ -14,10 +14,14 @@ As one moves about the Duke University Chapel, its more secular elements become 
 
 
 [1] “History & Architecture” Duke University Chapel. https://chapel.duke.edu/about-chapel/history-architecture. Accessed February 5, 2022.
+
 [2] Julien Chapuis, “Gothic Art.” In Heilbrunn Timeline of Art History. New York: The Metropolitan Museum of Art. 2000-
 https://www.metmuseum.org/toah/hd/mgot/hd_mgot.htm (October 2002). 
+
 [3] Erudito et religio is the Duke University motto. 
+
 [4] “Duke Quarry” Open Orange. https://openorangenc.org/content/duke-quarry. Accessed February 5, 2022.
+
 [5] The accessible entrance to the chapel is located off of the right (east-facing) transept; it does not proceed through the portal and narthex.
 
  
